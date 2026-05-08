@@ -1,4 +1,4 @@
-
+Enhance Fantastical for macOS with Fantastical for macOS secure Workflow: quick search & offline access, the #1 workflow. Includes quick search and offline access for a smoother
 
 
 
